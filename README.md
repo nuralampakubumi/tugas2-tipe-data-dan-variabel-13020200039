@@ -1,0 +1,1 @@
+# tugas2-tipe-data-dan-variabel-13020200039
